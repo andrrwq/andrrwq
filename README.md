@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @andrrwq
+- 👀 I’m interested in drawing and coding on python
+- 🌱 I’m currently learning english and python
+- 💞️ I’m looking to collaborate on someone who also learning python
+- 📫 How to reach me andrrwq@yalox4.tk (if something go wrong, use zeroad69@gmail.com)
