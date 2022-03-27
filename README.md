@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @andrrwq
+- 👋 Hi, I’m @filyniko (ikr its stupid nickname)
 - 👀 I’m interested in drawing and coding on python
 - 🌱 I’m currently learning english and python
 - 💞️ I’m looking to collaborate on someone who also learning python
