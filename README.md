@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @fily-gif
-- 👀 I’m interested in drawing and coding on python
-- 🌱 I’m currently learning english and python
-- 💞️ I’m looking to collaborate on someone who also learning python
-- 📫 How to reach me: my discord is Niko!#9317 (if i dont respong use fily#5456)
+- 👀 I’m interested in living
+- 🌱 I’m currently learning python
+- 📫 How to reach me: contact me thru the discord: fily#5456
